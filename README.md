@@ -260,7 +260,7 @@ If this project eventually moves toward an open community model, contributors wi
 
 
 
-\*\*Doh Felix Terngu\*\*
+\*\*Felix Terngu Doh\*\*
 
 
 
