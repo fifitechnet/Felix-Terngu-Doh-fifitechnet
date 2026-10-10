@@ -118,7 +118,7 @@ Read the article:
 
 
 
-\*\*Doh Felix Terngu\*\*
+\*\*Felix Terngu Doh\*\*
 
 
 
